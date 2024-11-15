@@ -1,3 +1,3 @@
 # Venda-De-Rede-Jaguruana
  Venda De Rede De Ótima Qualidade
-Primeira parte do meu Prijeto de venda de rede
+Primeira parte do meu Projeto de venda de rede
